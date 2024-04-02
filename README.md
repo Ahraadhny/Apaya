@@ -1,0 +1,1 @@
+fadli tidak bisa moveon dari shara
